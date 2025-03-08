@@ -1,2 +1,2 @@
-# reseach on neuromarkiting
+# research on neuromarkiting
 
